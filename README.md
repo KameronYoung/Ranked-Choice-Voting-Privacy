@@ -6,4 +6,3 @@ All features are fully available offline and do not require user accounts or int
 For support or if you have any questions about this policy, you can contact us at: rankedchoicevotingapp@gmail.com
 
 Last updated: 15 July 2025
-
